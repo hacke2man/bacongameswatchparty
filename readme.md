@@ -9,3 +9,4 @@
 - [ ] boob envy - https://www.youtube.com/watch?v=IeXsQUdM3UQ&list=WL&index=15&pp=gAQBiAQB
 - [ ] to hell with your restart - https://www.youtube.com/watch?v=wyL3dFnLGm4
 - [ ] Ludwig | Watching 100 chinest tiktoks to see... - https://youtu.be/4B419pDra1U?si=Cr-FTLBunpBc9EAE
+- [ ] ironmouse assumtions -  https://www.youtube.com/watch?v=0261LC7_TeU
