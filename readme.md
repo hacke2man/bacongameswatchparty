@@ -11,3 +11,4 @@
 - [ ] Ludwig | Watching 100 chinest tiktoks to see... - https://youtu.be/4B419pDra1U?si=Cr-FTLBunpBc9EAE
 - [ ] ironmouse assumtions -  https://www.youtube.com/watch?v=0261LC7_TeU
 - [ ] lilypichu made a game - https://youtu.be/6Jm-KQpX8Nw
+- [ ] get caught lying, we set you on fire - https://www.youtube.com/watch?v=eacQol2KFOA
