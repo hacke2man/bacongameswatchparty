@@ -14,3 +14,4 @@
 - [ ] get caught lying, we set you on fire - https://www.youtube.com/watch?v=eacQol2KFOA
 - [ ] A Bot that Scams People - https://youtu.be/LwOITqr_fz4?si=W3hYFqPnclIo_rWb
 - [ ] How Connoreatspants Trolled "Elon Musk" On His Surreal Talk Show https://youtu.be/fTVfLebUIlM?si=ws1uVkVFqK49oiMt
+- [ ] LUDWIG VTUBER??? - https://youtu.be/r4rTXmJiPco?si=OaBzB83ijOk11FS8
