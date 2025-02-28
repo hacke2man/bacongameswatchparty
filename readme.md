@@ -17,3 +17,4 @@
 - [ ] LUDWIG VTUBER??? - https://youtu.be/r4rTXmJiPco?si=OaBzB83ijOk11FS8
 - [ ] tech isn't fun anymore drew gooden - https://www.youtube.com/watch?v=P-TANCVoHlc
 - [ ] ludwig rank rage games - https://www.youtube.com/watch?v=XY70g0V_Dxk
+- [ ] karl jobst: elon - https://www.youtube.com/watch?v=z1ykCc588Zw
