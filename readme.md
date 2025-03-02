@@ -8,8 +8,8 @@
 - [x] Tommy | I used to be so cringe - https://youtu.be/3vo4TD7dV54?si=FfUWVUckMEZ48t0
 - [ ] boob envy - https://www.youtube.com/watch?v=IeXsQUdM3UQ&list=WL&index=15&pp=gAQBiAQB
 - [ ] to hell with your restart - https://www.youtube.com/watch?v=wyL3dFnLGm4
-- [ ] Ludwig | Watching 100 chinest tiktoks to see... - https://youtu.be/4B419pDra1U?si=Cr-FTLBunpBc9EAE
-- [ ] ironmouse assumtions -  https://www.youtube.com/watch?v=0261LC7_TeU
+- [x] Ludwig | Watching 100 chinest tiktoks to see... - https://youtu.be/4B419pDra1U?si=Cr-FTLBunpBc9EAE
+- [x] ironmouse assumtions -  https://www.youtube.com/watch?v=0261LC7_TeU
 - [x] lilypichu made a game - https://youtu.be/6Jm-KQpX8Nw
 - [ ] get caught lying, we set you on fire - https://www.youtube.com/watch?v=eacQol2KFOA
 - [ ] A Bot that Scams People - https://youtu.be/LwOITqr_fz4?si=W3hYFqPnclIo_rWb
