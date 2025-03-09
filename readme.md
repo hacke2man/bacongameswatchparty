@@ -19,3 +19,4 @@
 - [ ] ludwig rank rage games - https://www.youtube.com/watch?v=XY70g0V_Dxk
 - [ ] karl jobst: elon - https://www.youtube.com/watch?v=z1ykCc588Zw
 - [ ] iron mouse reacts to lidwig vtuber - https://www.youtube.com/watch?v=PCU83ThsWgo
+- [ ] ludwig nba friend? - https://www.youtube.com/watch?v=ok7lCqHuRjI
